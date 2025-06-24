@@ -1,4 +1,4 @@
-# 🐸 Hey there! I'm Dipanshu (aka CodingFrog7)
+# 🐸 Hey there! I'm Deepu  (aka CodingFrog7)
 
 ## 💫 About Me
 - 🔭 Currently crafting **3D interactive websites**
